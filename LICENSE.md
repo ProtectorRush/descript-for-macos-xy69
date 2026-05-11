@@ -1,4 +1,4 @@
-
+Descript for macOS advanced Overlay: text-animation & subtitle-generator offers the most advanced Descript for macOS overlay, with text-animation and subtitle-generator. Ideal for
 
 
 
